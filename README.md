@@ -1,4 +1,4 @@
-# Hello and welcome to my profile! 
+# Hello and welcome to my profile! <a href="https://www.animatedimages.org/cat-8-bit-super-mario-1538.htm"><img src="https://www.animatedimages.org/data/media/1538/animated-8-bit-super-mario-image-0001.gif" border="0" alt="animated-8-bit-super-mario-image-0001" /></a>
 
 My name is **Moritz Zschunke** and I'm based in _Hamburg, Germany_. 
 
